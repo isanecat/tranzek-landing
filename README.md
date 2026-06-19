@@ -1,1 +1,0 @@
-# tranzek-landing
